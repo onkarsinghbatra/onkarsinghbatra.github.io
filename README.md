@@ -1,2 +1,2 @@
-# Hello 👋, I am Onkar.
-Salut! I'm a senior at Avenues Online - studying Calc II and AP Physics. 
+# Hello 👋, I'm Onkar.
+Salut! Je m'appelle Onkar Singh. Nice to have you here! I am a 16 y/o highschool senior who loves to explore new stuff. 
