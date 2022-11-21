@@ -1,4 +1,4 @@
-# Coursework
+# Coursework 📚
 A list of courses I'm currently taking.
 
 1. Great Works 12 World
